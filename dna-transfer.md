@@ -1,0 +1,3 @@
+﻿Convert your DNA files for free.
+
+Experience the convenience of our converter by uploading your DNA to MyHeritage, 23andMe, and Ancestry. Discover more about your genetic ancestry and health traits by transferring your <a href="https://tendna.com/dna-converter">upload myheritage dna to 23andme</a>. Gain a more comprehensive understanding of your genetic profile by comparing your results across multiple platforms. Take your genetic genealogy research to the next level by transferring your AncestryDNA results to FamilyTreeDNA or <a href="https://tendna.com/dna-converter">upload myheritage dna to ancestry</a> and accessing unique features and resources tailored to DNA matching and genealogical exploration.
